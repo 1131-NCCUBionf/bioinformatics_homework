@@ -1,3 +1,3 @@
 ## chatgpt prompt
 
-https://chatgpt.com/c/67259985-c3f8-800a-b2cc-32adcd52c120
+https://chatgpt.com/share/67259d48-49ec-800a-8d5a-7f2e3286ed47
